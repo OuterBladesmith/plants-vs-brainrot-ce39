@@ -1,4 +1,4 @@
-
+plants vs brainrots Scripts ultimate is the best plants vs brainrots Script, featuring auto-farm and no cooldown. Safe and powerful for all your
 
 
 
